@@ -1,1 +1,1 @@
-看不到, 咋回事.
+can't use chinese
